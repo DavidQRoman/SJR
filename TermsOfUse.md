@@ -1,4 +1,4 @@
-# Terms of Use
+# Terms of use
 
 These terms and conditions outline the rules and regulations for the use of Songs Joiner.
 
